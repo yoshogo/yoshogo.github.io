@@ -1,0 +1,1 @@
+# yoshogo.github.io
